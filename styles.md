@@ -9,4 +9,4 @@
 * Pointillism
 * pin-up style
 * Street art
-
+* Draw me a $subject in style of bismuth sculpture. It should look like a studio photo bismuth crystal sculpture.
